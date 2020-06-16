@@ -1,1 +1,1 @@
-﻿ GetThatLook is an online shopping store for latest collection of shoes and clothes to make you help look your best..
+﻿ GetThatLook is an online shopping store for latest collection of shoes and clothes to make you help look your best.. The styling credit goes to Bootswatch.com
